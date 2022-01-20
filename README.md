@@ -1,1 +1,1 @@
-# Privacy-Police-for-Monster-Trucks-Simulator
+# Privacy-Policy-for-Monster-Trucks-Simulator
